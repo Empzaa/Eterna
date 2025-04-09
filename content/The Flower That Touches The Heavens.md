@@ -1,0 +1,3 @@
+#Location
+
+Within [[Cyrus]] lies a flower that has several dozen stems that connect to buildings throughout the city, leading to a flower that faces the ground. The flower hangs over the city square, dispersing petals year round. A group within the city has been tasked with the protection of the sacred flower, guarding, pruning, and assuring its health, who are known as [[Groundskeepers]]. Exposure to the flower has shown incredible health benefits, with healing and anti-aging effects being just a few.

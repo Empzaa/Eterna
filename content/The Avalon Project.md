@@ -1,0 +1,3 @@
+#Location
+
+Several decades ago, as heat began to worsen in already near uninhabitable desert, the Avalon Project was started, with intent to shrink the desert drastically, while still preserving part of its unique ecosystem for future generations to see. Within Tsutia's grand walls, there are massive gardens with plants transported from Avalon Forest to slowly breed and spread outwards from the city. Alongside this is gardens with plants and animals unique to their region, to make sure history and species are preserved. 

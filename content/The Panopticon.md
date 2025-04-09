@@ -1,0 +1,3 @@
+#Location
+
+Far below the ground, but not as far as [[The Forge of The Elegies]], lies The Panopticon, a circular prison that is in competition with the [[The Arheath Bank and Mint]] for sheer amount of protection. Inside it lies some of the strongest criminals in the world, along with many who do not deserve such a fate. In the center of this miniature police state is an unknown artifact that seems to prevent all usage of domains within the prison unconditionally.

@@ -1,0 +1,3 @@
+#Location
+
+Roughly 217 years ago, prior to [[The Revolution of Arheath]], [[William Huckleberry]] came to [[Arheath]] as a penniless architect. His sketches had been rejected by all major builders in [[Tsutia]] and [[Ramon]]. However, a building contractor took pity on him, and decided to use one of his designs on the start of a new district, that building being what is now [[Historian's Heaven]]. William's designs all featured faces as a way to connect to the onlooker, and he went on to design the entire street. After finishing the Street of Faces, he went on to work in many other cities, besides [[Tsutia]] and [[Ramon]]. He is now considered the father of the [[Expressionist Movement]].

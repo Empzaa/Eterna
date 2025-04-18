@@ -10,9 +10,11 @@ Elegies lack a heartbeat and are able to survive without food, water, air, and m
 
 The strength of Elegies relative to each other vary quite a bit due to the innate combat effectiveness of their respective domains differing quite a bit from Elegy to Elegy. Some Elegies choose to live simple lives, while some choose to take power, and often are able to do so without much difficulty, unless facing many [[Motifs]] or another Elegy.
 
-##### List Of Known & Notable Elegies
+##### List Of Known & Notable Elegies (Living and Nonliving)
 
 [[Elias]]
 [[Millie Hathow]]
 [[Otto Venturius]]
 [[Galehaut]]
+[[Evelyn Isla]]
+[[Adminius Finch]] (Deceased)

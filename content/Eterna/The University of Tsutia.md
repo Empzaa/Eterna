@@ -1,3 +1,3 @@
 #Location
 
-Within Eterna, education beyond the bare essentials was uncommon until rather recently. However, the key exception lies within Tsutia, the largest and oldest standing University and Library lying within it. Tsutia was founded by architects and engineers who knew that for a brighter future, education was vital. Many of the world's greatest discoveries have been made here, trickling out slowly after they've been made in Tsutia to other parts of the world. 
+Within [[Eterna]], education beyond the bare essentials was uncommon until rather recently. However, the key exception lies within Tsutia, the largest and oldest standing University and Library lying within it. Tsutia was founded by architects and engineers who knew that for a brighter future, education was vital. Many of the world's greatest discoveries have been made here, trickling out slowly after they've been made in Tsutia to other parts of the world. 

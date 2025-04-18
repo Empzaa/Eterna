@@ -1,3 +1,5 @@
 #Location
 
 The Forge of The Elegies can be found  at the bottom of a miles deep elevator shaft, and reaches temperatures no regular human can survive without protection. The ambient heat of the forge brings most metals close to their melting point, and the interior of the forge is hot enough to turn most metals into gas when operated properly. Once the metals are refined, they are brought to the [[Great Basin]] of [[Cliffrise]] to cool over the duration of around a month, where they are then shipped to [[The Arheath Bank and Mint]] for further processing.
+
+At one point, the finest [[Artifacts]] in all of [[Eterna]] were made here. However, the smith who created them has either died or simply disappeared. The smith's methods were lost soon after, as no one could endure the conditions required to perform them. Remnants of their work can be found all around [[Eterna]]

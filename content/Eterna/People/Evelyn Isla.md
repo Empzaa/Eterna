@@ -3,9 +3,12 @@
 ## **Alias(es) :** Tsutia's Ghost
 
 **Age :** 217 (Elegy since 23, motif from 13-23)
+
 **Occupation :** Gunslinger
 
+
 **Species :** Human - [[Elegy]]
+
 **[[Domain]] :** Sand
 
 ## **Description** 

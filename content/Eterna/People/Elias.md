@@ -3,9 +3,12 @@
 ## **Alias(es) :** The Lone Wanderer
 
 **Age :** 570 (Elegy since 17)
+
 **Occupation :** Wanderer
 
+
 **Species :** Human - [[Elegy]]
+
 **[[Domain]] :** Ice
 
 ## **Description** 
@@ -21,4 +24,5 @@ Elias was born in a cold and inhospitable land, and he learned to make it home. 
 ## **Related Articles**
 
 [[The First War Of The Southern Isle]]
+
 [[The First Continent]]
